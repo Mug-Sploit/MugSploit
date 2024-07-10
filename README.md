@@ -4,7 +4,7 @@ Are you ready to take your Roblox Cheating to the next level? Look no further th
 
 **Why MugSploit?**
 
-Have 72% UNC: Under 72% UNC make your experience using other exploit applications unpleasant. MugSploit Have 72% UNC.
++ *Have 72% UNC: Under 72% UNC make your experience using other exploit applications unpleasant. MugSploit Have 72% UNC.*
 
 + *Cool UI : We use Monaco and siticone ui to make a cool ui. No more richtextbox, using Monaco completely.*
 
