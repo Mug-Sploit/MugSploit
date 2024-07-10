@@ -1,7 +1,6 @@
 # ![my-MugSploit](https://github.com/Mug-Sploit/MugSploit/assets/175264825/697a2618-9c2c-4610-86a3-2ef694be4f77) - Your Best Roblox Cheating!
 
-# MugSploit - Your Best Roblox Cheating!
- Are you ready to take your Roblox Cheating to the next level? Look no further than MugSploit - the best Roblox Cheating experience like never before.
+Are you ready to take your Roblox Cheating to the next level? Look no further than MugSploit - the best Roblox Cheating experience like never before.
 
 **Why MugSploit?**
 
